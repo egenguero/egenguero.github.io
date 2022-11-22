@@ -34,3 +34,10 @@
 ![scarlet](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQuEmlU-HvOs0W3iUlNWgvIB4zUfDVZdl_Byg&usqp=CAU)
 
 - Scarlet macaw has a creamy white, almost featherless face, with bright red plumage covering most of its body, wings and long tail. Brilliant blue and yellow feathers also adorn the lower wings. The bird's strong beak is adapted to breaking hard nuts found in the rainforest.
+
+**5. Sulphuer-Crested Cockatoo**
+
+![sulphur-crested](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRDKOPvzVyTbJyTevWgpI1tQs1UvaNeNjxBbw&usqp=CAU)
+
+- Sulphur-crested Cockatoos are large parrots, ranging between 44 – 51 cm in length, with a wingspan of up to 103 cm. The feathers on their neck and head are white with concealed pale yellow. There are also yellow markings underneath their wings which can be seen when flying.
+
